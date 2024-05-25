@@ -1,2 +1,0 @@
-# TNT-A-N
-TNT A/N
